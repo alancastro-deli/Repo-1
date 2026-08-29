@@ -19,3 +19,5 @@ ADEMAS que pedo, suponiendo que todo lo anterior fuera falso, TODAS las quesadil
 El unico argumento valido para no tener queso es que seas intolerante a la alctosa en cuyo caso mejor matate
 
 *mic drop*
+
+Perro sucio que no puede comer sin queso
